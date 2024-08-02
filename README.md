@@ -1,3 +1,5 @@
+![dog-berserk](https://github.com/user-attachments/assets/0724668e-6319-406f-88c2-9a89d2c4fd1f)
+
 ### Salve rapazeada! 🤟💥🗣️🗣️🗣️
 Meu nome é julio AKA jhoizin ou INSANINHO_ZK
 
