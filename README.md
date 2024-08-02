@@ -7,4 +7,6 @@ Meu nome é julio AKA jhoizin ou INSANINHO_ZK
 
 ### Você pode reclamar ou elogiar aqui ó 👇👇👇
 jcmlk936@gmail.com
-!
+
+!skidi https://tenor.com/pt-BR/view/ichigo-gif-25627343
+
